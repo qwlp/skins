@@ -1,4 +1,4 @@
-# tsp648's skin
+# tsp648's skins
   if a skin is not listed dm YuuSakkuCat#8904 on discord
 
 # [bloo fusion edit](https://tsp.s-ul.eu/XXBKI5nF)
