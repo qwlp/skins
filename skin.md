@@ -1,5 +1,5 @@
-# skins
-# if a skin is not listed dm YuuSakkuCat#8904
+# tsp648's skin
+  if a skin is not listed dm YuuSakkuCat#8904
 
 # [bloo fusion edit](https://tsp.s-ul.eu/XXBKI5nF)
 ![](https://i.imgur.com/BtlyDKH.jpg)
