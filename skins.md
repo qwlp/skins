@@ -7,7 +7,7 @@
 # [Rafis HDDT](https://tsp.s-ul.eu/A7qvleVJ)
 ![](https://i.imgur.com/eWh2woS.jpg)
 
-# [Asmaestric](https://tsp.s-ul.eu/vjoEwY2l)
+# [Amaestric](https://tsp.s-ul.eu/vjoEwY2l)
 ![](https://i.imgur.com/R668Nfi.jpg)
 
 # [freddie edit](https://tsp.s-ul.eu/auL727Nd)
