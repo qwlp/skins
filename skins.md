@@ -12,8 +12,3 @@
 
 # [freddie edit](https://tsp.s-ul.eu/auL727Nd)
 ![](https://i.imgur.com/wgFfwcW.jpg)
-
-# [bloo cam edit](https://drive.google.com/file/d/1K7Lo4HiUE4HW-hKIaKN6sR1kiaLG8awp/view?usp=sharing)
-
-
-
